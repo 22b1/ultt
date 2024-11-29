@@ -1,2 +1,2 @@
 # ultt
-just fuck of if you're here
+just fuck off if you're here
